@@ -1,1 +1,1 @@
-cybersec is my interest, WWW?
+your average csec enthusiast, on arch btw o.O
